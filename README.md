@@ -1,1 +1,1 @@
-# trevorkocsis.github.io
+# TrevorKocsis.github.io
